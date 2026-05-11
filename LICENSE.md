@@ -1,4 +1,4 @@
-#  
+#  evade Script best is the best evade Script, featuring silent aim and auto-farm. Safe and powerful for all your needs.
 
 
 
